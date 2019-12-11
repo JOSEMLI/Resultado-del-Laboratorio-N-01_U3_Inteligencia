@@ -1,0 +1,1 @@
+# Resultado-del-Laboratorio-N-01_U3_Inteligencia
